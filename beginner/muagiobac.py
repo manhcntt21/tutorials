@@ -1,0 +1,10 @@
+sada
+á
+dá
+da
+sortedá
+da
+sorteda
+asciidas
+delattrsd
+asciida
